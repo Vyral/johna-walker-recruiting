@@ -31,7 +31,7 @@ permalink: /join-our-team/
 
 <p>Our credibility is our proven track record, our agents do very well in this business. I have agents who make $220,000 per year, that’s a lot of money in our area. We hire many people in military families because it’s very difficult to get a job in that situation. Businesses know you may only be around for 12 to 24 months before moving to the next duty station. We have our showing agent program, which is something you can do for a year or two, it’s a win-win for both of us. Also, 98% of our business is military, so we know what our client’s lives are like and what they need. </p>
 
-<p><strong>I was just like you. I began in real estate because I was a military spouse and needed money for my kids’ college. When I started my career I cried every night because I wasn’t offered any training, the people I worked for were unpleasant, they didn’t care about their staff, and I had to find other resources for my training if I wanted to do well. </p>
+<p><strong>I was just like you.</strong> I began in real estate because I was a military spouse and needed money for my kids’ college. When I started my career I cried every night because I wasn’t offered any training, the people I worked for were unpleasant, they didn’t care about their staff, and I had to find other resources for my training if I wanted to do well. </p>
 
 <p><strong>When you join our team, you’ll begin as a showing agent or apprentice and then move up.</strong> You’ll receive proper mentoring and training, and we’ll hold you accountable. This makes a large difference in your career. You need to be on our team and receive support to do that volume of business; <strong>you can’t do it alone.</strong> </p>
 
